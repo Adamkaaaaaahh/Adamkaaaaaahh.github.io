@@ -1,2 +1,2 @@
 Fuck you!
-![Image](https://github.com/user-attachments/assets/3ab1d2fb-5775-43e5-8cf3-4e2009a962c1)
+![Image](https://github.com/user-attachments/assets/318acc4d-7d81-4bd7-9deb-5db67cc10dfd)
